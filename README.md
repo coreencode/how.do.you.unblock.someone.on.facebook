@@ -1,7 +1,7 @@
 # How Do you Unblock Someone on Facebook?
 
 
-[![how do you unblock someone on facebook](redd.png)](https://github.com/coreencode/how.do.you.unblock.someone.on.facebook)
+[![how do you unblock someone on facebook](redd.png)](https://icncomputer.com/how-do-you-unblock-someone-on-facebook/)
 
 
 Want to give someone a second chance and allow them to view your Facebook profile? It’s easy to unblock someone you have blocked in your Facebook account. We’ll show you how to do this on the Facebook site and the mobile app.
